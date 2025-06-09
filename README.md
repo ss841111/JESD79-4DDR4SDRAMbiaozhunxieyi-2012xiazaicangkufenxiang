@@ -1,0 +1,1 @@
+# JESD79-4DDR4SDRAMbiaozhunxieyi-2012xiazaicangkufenxiang
